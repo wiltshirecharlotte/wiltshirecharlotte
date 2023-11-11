@@ -1,3 +1,11 @@
-### CELLIE / BIBI
-it/its/fawn/bug
-https://cdn.discordapp.com/attachments/1025834878513721436/1025837935456686174/e3c23116_original.gif?ex=65590386&is=65468e86&hm=b1413d9bc505e466e618a5b85b887a37f416d882a7c94d40e1594738962bf42c&
+### CELLIE / BIBI ![c4426b0f](https://github.com/wiltshirecharlotte/wiltshirecharlotte/assets/150542689/ec82db16-d787-48c7-a9ed-5e2a20d4b24e)
+
+-- it/its/fawn/bug
+
+--  linked 2 rentries cuz one has more info :3
+
+-- don't randomly add my discord i won't accept !
+  
+
+![e3c23116_original](https://github.com/wiltshirecharlotte/wiltshirecharlotte/assets/150542689/761b1806-3dd2-4bfb-b489-3dcda34a3e37)
+
