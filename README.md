@@ -4,7 +4,7 @@
 
 --  linked 2 rentries cuz one has more info :3
 
--- don't randomly add my discord i won't accept !
+-- u can whisper ask for my discord idm but dont b mad if i dont give it pls :3
   
 
 ![e3c23116_original](https://github.com/wiltshirecharlotte/wiltshirecharlotte/assets/150542689/761b1806-3dd2-4bfb-b489-3dcda34a3e37)
